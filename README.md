@@ -214,8 +214,3 @@ At Capilano Suspension Bridge right now, it's Mostly Cloudy with a temperature o
 
 ---
 
-# Done and Done!
-
-Too bad we don't have time for an actual road trip...
-
-![](https://media.giphy.com/media/PqwqtOLfG19Ti/giphy.gif)
